@@ -1,3 +1,0 @@
-# Kuznecov_Anton
-
-
